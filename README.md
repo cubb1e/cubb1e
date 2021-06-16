@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cubb1e
+- 👀 I’m interested in YouTube. coding, drumming, soccer, gaming and cooking
+- 🌱 I’m currently learning Advanced Computing and Commerce
+- 📫 How to reach me: E-mail, lewittonj@gmail.com
